@@ -11,3 +11,5 @@ History has epochs. Fire. Steam engine. Oil. Electricity. The internet. In 2035,
 "Our purpose behind moving towards creating a world of abundance is to ensure every person on earth get access to healthy food, clean water, advanced medical care, education, opportunity to contribute to the growth of humanity with more meaningful jobs and stable income without any discrimination about status, money, religion, color, gender, or language. Humanity will grow together, in a better, safer, and happier world.
 
 A world of abundance, a world of possibility, where no child dies of hunger or due to the lack of medical care. No family lives in darkness, no one’s dreams die just because it was born in poverty. Poverty itself must become history. No person works for fulfilling their basic needs but for a greater purpose of humanity." — Rupayan Das, Founder & CEO, Chief ASI Architect
+
+https://renokonasi.com/
