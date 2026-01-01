@@ -2,7 +2,7 @@ Renokon ASI - The most dominant company of the 21st century. A singular mission 
 
 Mobilizing $50T to build the most powerful brain in human history: The ALPHA. In the next 35 years, we will transition the world from scarcity to abundance by creating a $5,000T global economy, a future where we are not limited by energy, resources, money, technology, science, physical labor, and cognitive labor of human biology. Renokon ASI, the operating system of humanity.
 
-The opportunity to invest in Renokon Sovereign ASI Partnership will be presented to very few selected Sovereign Wealth Funds, Pension, Insurance and investment Institutions in 2026.
+The opportunity to invest in Renokon Sovereign ASI Partnership will be presented to very few selected Sovereign Wealth Funds, long-horizon pension and insurance institutions, and the world’s largest asset management institutions in 2026.
 
 By the end of the year 2026, we will sign $20T+ in long-term (19-years) investment commitment.
 
