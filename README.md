@@ -1,6 +1,6 @@
-Renokon ASI - The most dominant company of the 21st century. A singular mission to achieve Artificial Super Intelligence by 2035 to compress the next 10,000 years of human civilization progress within the next 100 years. To ensure the survivability of humanity for the next billions of years, to make sure one catastrophic event cannot make theentire human civilization go extinct.
+Renokon ASI - The Operating System of Humanity. A singular mission to achieve Artificial Super Intelligence by 2035 to compress the next 10,000 years of human civilization progress within the next 100 years. To ensure the survivability of humanity for the next billions of years, to make sure one catastrophic event cannot make theentire human civilization go extinct.
 
-Mobilizing $50T to build the most powerful brain in human history: The ALPHA. In the next 35 years, we will transition the world from scarcity to abundance by creating a $5,000T global economy, a future where we are not limited by energy, resources, money, technology, science, physical labor, and cognitive labor of human biology. Renokon ASI, the operating system of humanity.
+Mobilizing $50T to build the most powerful brain in human history: The ALPHA. In the next 35 years, we will transition the world from scarcity to abundance by creating a $5,000T global economy, a future where we are not limited by energy, resources, money, technology, science, physical labor, and cognitive labor of human biology.
 
 The opportunity to invest in Renokon Sovereign ASI Partnership will be presented to very few selected Sovereign Wealth Funds, long-horizon pension and insurance institutions, and the world’s largest asset management institutions in 2026.
 
