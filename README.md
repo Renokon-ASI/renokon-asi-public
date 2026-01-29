@@ -1,11 +1,11 @@
 Renokon ASI - The Operating System of Humanity. A singular mission to achieve Artificial Super Intelligence by 2035 to compress the next 10,000 years of human civilization progress within the next 100 years. To ensure the survivability of humanity for the next billions of years, to make sure one catastrophic event cannot make the entire humancivilization go extinct.
-Mobilizing $50T to transition the world from scarcity to abundance by creating a $5,000T global economy by 2060. A future where we are not limited by energy, resources, money, technology, science, physical labor, and cognitive labor of human biology.
+Mobilizing $50T to transition the world from scarcity to abundance by creating a $5,000T - $25,000T global economy by 2060. A future where we are not limited by energy, resources, money, technology, science, physical labor, and cognitive labor of human biology.
 
 "Our purpose behind moving towards creating a world of abundance is to ensure every person on Earth gets access to healthy food, clean water, advanced medical care, education, opportunity to contribute to the growth of humanity with more meaningful jobs and stable income without any discrimination about status, money, religion, color, gender, or language. Humanity will grow together, in a better, safer, and happier world.
 
 A world of abundance, a world of possibility, where no child dies of hunger, no one's life is lost due to the absence of advanced medical care, no family lives in darkness, no one’s dreams die just because it was born in poverty. Poverty itself must become history. No person works to fulfill their basic needs but for a greater purpose of humanity.
 
-The end of scarcity Is the beginning of a new era of humanity.
+The beginning of a new era of humanity.
 
 History has epochs. Fire. Steam engine. Oil. Electricity. The internet. In 2035, we will cross the greatest threshold in human history: Artificial Super Intelligence. I have architected the execution blueprint to create the $5,000T global economy by 2060 with Renokon ASI and to deliver ASI to humanity by 2035. From that moment onward, the trajectory of civilization will not merely change—it will be irreversibly transformed." — Rupayan Das, Founder & CEO, Chief ASI Architect of Renokon ASI
 
