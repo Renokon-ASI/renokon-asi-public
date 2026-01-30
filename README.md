@@ -1,5 +1,4 @@
-Renokon ASI - The Operating System of Humanity. A singular mission to achieve Artificial Super Intelligence by 2035 to compress the next 10,000 years of human civilization progress within the next 100 years. To ensure the survivability of humanity for the next billions of years, to make sure one catastrophic event cannot make the entire humancivilization go extinct.
-Mobilizing $50T to transition the world from scarcity to abundance by creating a $5,000T - $25,000T global economy by 2060. A future where we are not limited by energy, resources, money, technology, science, physical labor, and cognitive labor of human biology.
+Renokon ASI - The Operating System of Humanity. A singular mission to achieve Artificial Super Intelligence by 2035 to compress the next 10,000 years of human civilization progress within the next 100 years. To ensure the survivability of humanity for the next billions of years, to make sure one catastrophic event cannot make the entire humancivilization go extinct. Mobilizing $50T to transition the world from scarcity to abundance by creating a $5,000T global economy by 2060. A future where we are not limited by energy, resources, money, technology, science, physical labor, and cognitive labor of human biology.
 
 "Our purpose behind moving towards creating a world of abundance is to ensure every person on Earth gets access to healthy food, clean water, advanced medical care, education, opportunity to contribute to the growth of humanity with more meaningful jobs and stable income without any discrimination about status, money, religion, color, gender, or language. Humanity will grow together, in a better, safer, and happier world.
 
@@ -13,7 +12,7 @@ Renokon Sovereign ASI Partnership - The Largest Coordinated Capital Mobilization
 
 The opportunity to invest in Renokon Sovereign ASI Partnership will be presented to very few selected Sovereign Wealth Funds, long-horizon pension and insurance institutions, and the world’s largest asset management institutions in 2026.
 
-By the end of the year 2026, we will sign $20T+ in long-term (19-years) investment commitment.
+By the end of the year 2026, we will sign $20T+ in long-term (10-year) investment commitment.
 
 A Civilization Confined to One Planet will Eventually Go Extinct. The Risk of Humanity's Extinction is Real. Today, there are 6 Highly Concerning Risks, That Could Be the Reason of Humanity's Extinction:
 
