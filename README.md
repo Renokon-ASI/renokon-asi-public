@@ -2,7 +2,7 @@ Renokon ASI - The Operating System of Humanity. A singular mission to achieve Ar
 
 "Our purpose behind moving towards creating a world of abundance is to ensure every person on Earth gets access to healthy food, clean water, advanced medical care, education, opportunity to contribute to the growth of humanity with more meaningful jobs and stable income without any discrimination about status, money, religion, color, gender, or language. Humanity will grow together, in a better, safer, and happier world.
 
-A world of abundance, a world of possibility, where no child dies of hunger, no one's life is lost due to the absence of advanced medical care, no family lives in darkness, no one’s dream die just because it was born in poverty. Poverty itself must become history. No person works to fulfill their basic needs but for a greater purpose of humanity.
+A world of abundance, a world of possibility, where no child dies of hunger, no one's life is lost due to the absence of advanced medical care, no family lives in darkness, no one’s dream die just because it was born in poverty. Poverty itself must become history. No person will work merely to fulfill basic needs, but for the greater purpose of humanity.
 
 The beginning of a new era of humanity.
 
