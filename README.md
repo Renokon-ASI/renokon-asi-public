@@ -6,7 +6,7 @@ Building a world where no child dies of hunger, no one's life is lost due to the
 
 The beginning of a new era of humanity.
 
-History has epochs. Fire. Steam engine. Oil. Electricity. The internet. In 2035, we will cross the greatest threshold in human history: Artificial Super Intelligence. I have architected the execution blueprint to create the $5,000T global economy by 2060 with Renokon ASI and to deliver ASI to humanity by 2035. From that moment onward, the trajectory of civilization will not merely change—it will be irreversibly transformed." — Rupayan Das - The Founder, Chairman, CEO & The Singularity Architect of Renokon ASI.
+History has epochs. Fire. Steam engine. Oil. Electricity. The internet. In 2035, we will cross the greatest threshold in human history: Artificial Super Intelligence. I have architected the execution blueprint to create the $5,000T global economy by 2060 with Renokon ASI and to deliver ASI to humanity by 2035. From that moment onward, the trajectory of civilization will not merely change—it will be irreversibly transformed." — Rupayan Das
 
 Renokon Sovereign ASI Partnership - The Largest Coordinated Capital Mobilization in Human History.
 
