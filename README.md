@@ -25,16 +25,16 @@ The nation who will become the first partner will permanently occupy a unique, i
 
 The greatest geopolitical race in human history is on. The clock is ticking. Time is low. The greatest geopolitical risk a nation can take is to wait, until another nation signs the historic position. Once it's signed with any one of these nations; there is no looking back. Neutrality is an illusion, and hesitation is a guaranteed permanent downgrade.
 
-https://renokonasi.com/
+https://www.renokonasi.com/
 
-https://renokonasi.com/renokon-sovereign-asi-partnership
+https://www.renokonasi.com/renokon-sovereign-civilizational-partnership
 
-https://renokonasi.com/the-renokon-civilizational-charter
+https://www.renokonasi.com/the-renokon-civilizational-charter
 
-https://renokonasi.com/execution-blueprint
+https://www.renokonasi.com/execution-blueprint
 
-https://renokonasi.com/rupayan-das
+https://www.renokonasi.com/rupayan-das
 
-https://renokonasi.com/the-founding-chairman-commitment-to-the-193-partner-nations
+https://www.renokonasi.com/the-founding-chairman-commitment-to-the-193-partner-nations
 
-https://renokonasi.com/accession-protocols-renokon-sovereign-asi-partnership
+https://www.renokonasi.com/accession-protocols-renokon-sovereign-civilizational-partnership
